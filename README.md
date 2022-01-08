@@ -1,0 +1,8 @@
+ --hi I'm TW_Sam
+ --I'm form Nationalist party
+ --I'm a officer of NRA (Nationalist Revolutionary Army)
+ --NRA Roblox link: https://www.roblox.com/groups/10638502/NRA-National-Revolutionary-Army#!/about (copy and paste)
+ --NRA Discord link: https://discord.gg/fBqN8p3wFN (copy and paste)
+ --NRA Roblox game link: https://www.roblox.com/games/6970333782/NRA#!/game-instances (copy and paste)
+ --NRA picture: https://t6.rbxcdn.com/4279e11c782a2764dc999eaccb49a404 (copy and paste)
+ --Welcome to join NRA!✨🎉
